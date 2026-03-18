@@ -1,4 +1,4 @@
 <p align="center">
-super mega wip!!
+Place-holder !! ^_^
 <p align="center"> 
-  <img src="https://64.media.tumblr.com/3eb9e3c9869686a42a3d95a3c876157d/10342b6bb5a2dbf2-18/s250x400/063b526818187868bcb9b3d5c2ad79bea04c19d1.gifv">
+  <img src="https://i.pinimg.com/originals/44/4f/4d/444f4dbd6ed8f2512a1b318d3b9133bf.gif">
